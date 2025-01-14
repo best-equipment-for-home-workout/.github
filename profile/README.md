@@ -41,7 +41,7 @@ Resistance bands are lightweight, portable, and incredibly versatile. They’re 
 
 ### Low-Impact Cardio Solution
 
-A compact [elliptical machine](https://fqahealthcare.com/category/ellipticals/compact-elliptical/) offers low-impact cardio, making it gentle on joints. It’s an [excellent space-saving option](https://fqahealthcare.com/best-elliptical-for-small-spaces/) for staying active at home.
+A compact [elliptical machine](https://fqahealthcare.com/category/ellipticals/compact-elliptical/)offers low-impact cardio, making it gentle on joints. It’s an [excellent space-saving option](https://fqahealthcare.com/best-elliptical-for-small-spaces/) for staying active at home.
 
 ### Features to Consider
 
