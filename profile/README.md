@@ -1,4 +1,3 @@
-```markdown
 # Creating Your Own Home Gym
 
 Creating your own home gym opens up endless possibilities for staying fit and active, all within the comfort of your own space. Whether you’re juggling a hectic schedule, craving privacy, or cutting costs, having the right equipment makes your home workouts both effective and enjoyable. Here are some of the best tools to include in your home gym setup.
