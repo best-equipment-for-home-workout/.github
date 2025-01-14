@@ -30,7 +30,7 @@ The bands provide continuous tension during exercises, helping activate muscles 
 
 ## 3. **Treadmill: Cardio Made Easy at Home**
 
-If you enjoy walking or running, a treadmill is a great investment. It allows you to get your daily cardio workout in, no matter what the weather is like outside. Whether you're walking for a light workout or running at a higher intensity, a treadmill offers flexibility and control.
+If you enjoy [walking or running](https://fqahealthcare.com/), a treadmill is a great investment. It allows you to get your daily cardio workout in, no matter what the weather is like outside. Whether you're walking for a light workout or running at a higher intensity, a treadmill offers flexibility and control.
 
 Modern treadmills often come with adjustable speeds, incline options, and built-in workout programmes. Many even include heart rate monitors and calorie trackers, which help you keep track of your progress. A treadmill is a reliable choice for improving cardiovascular health and burning calories.
 
@@ -42,7 +42,7 @@ Modern treadmills often come with adjustable speeds, incline options, and built-
 
 ## 4. **Elliptical Trainer: Low-Impact Full-Body Cardio**
 
-An elliptical trainer is a great option for low-impact cardio that works both your upper and lower body. The smooth, gliding motion makes it easy on your joints, while the moving handlebars engage your arms as you exercise.
+An [elliptical trainer](https://fqahealthcare.com/best-ellipticall-machines/) is a great option for low-impact cardio that works both your upper and lower body. The smooth, gliding motion makes it easy on your joints, while the moving handlebars engage your arms as you exercise.
 
 Ellipticals are great for improving cardiovascular fitness, burning fat, and increasing endurance. Many models have adjustable resistance, so you can customize the intensity of your workout. They also often include features like heart rate monitors to help track your progress.
 
